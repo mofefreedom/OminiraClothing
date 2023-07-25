@@ -1,2 +1,2 @@
-# Ominira heh
+# Ominira
 Ominira Clothing Brand Website
